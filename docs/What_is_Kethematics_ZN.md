@@ -1,1 +1,2 @@
-
+家庭学（Kethematics）是一门全新的学科，现在其正处于disciplinary prototype的阶段，
+需要其能持续产出思想
